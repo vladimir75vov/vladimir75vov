@@ -1,4 +1,4 @@
-# Junior Frontend Developer / Tech Support / Tester
+# Frontend Developer / Tech Support / Tester
 
 Highly motivated individual seeking an entry-level opportunity in the IT field. Eager to learn, adapt, and contribute to a team.
 
